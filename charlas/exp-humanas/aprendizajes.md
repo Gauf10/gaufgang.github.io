@@ -10,7 +10,8 @@ Dos preguntaron para agendar conmigo, mientras que desde ayer ya tengo 3 agendad
 
 Apunté a tardar 20 min. 30 con preguntas, y cerca de los 15 minutos ya estaba cerrando mi presentación.
 
-Feedbac
+Feedback:
+Cande: Muchas gracias de nuevo por la charla!! Salió excelente 😊 También quedó subida al portal de TRIBU, así que mucha más gente va a poder verla offline.
 
 ## Qué cambiaría
 
