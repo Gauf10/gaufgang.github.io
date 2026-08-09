@@ -1,4 +1,4 @@
-# Aprendizajes — ¿Vamos bien?
+# Aprendizajes — Diseñar experiencias humanas
 
 ## Qué funcionó
 
@@ -9,6 +9,8 @@ Agradecí mucho, desee suerte a todos y quedo disponible.
 Dos preguntaron para agendar conmigo, mientras que desde ayer ya tengo 3 agendados para mentoria corta hoy.
 
 Apunté a tardar 20 min. 30 con preguntas, y cerca de los 15 minutos ya estaba cerrando mi presentación.
+
+Feedbac
 
 ## Qué cambiaría
 
